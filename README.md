@@ -1,1 +1,1 @@
-CS GO MAİN HESAB GÖRÜNTÜSÜ: https://pnrtscr.com/ziyaselcukistifa
+CS GO MAİN HESAP GÖRÜNTÜSÜ: https://pnrtscr.com/ziyaselcukistifa
